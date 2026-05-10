@@ -1,4 +1,4 @@
-
+one tap smart Script offers the most advanced one tap Script, with auto-collect and fly. Perfect for dominating any match.
 
 
 
